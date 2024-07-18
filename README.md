@@ -1,0 +1,5 @@
+SERIE DE DISEÑOS TRABAJADOS EN ADOBE PHOTOSHOP E ILLUSTRATOR
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+- Logotipo y Slogan como propuesta para Bienestar Estudiantil UNSE a través de Santander Becas
+- Diseño de logo para un polirubro 
+- Diseño de logo para emprendimiento de velas aromáticas
